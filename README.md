@@ -1,4 +1,2 @@
-
-
-\# Curso Git \& GitHub TeoMeWhy 2025
+\# Curso Git e GitHub - TeoMeWhy
 
