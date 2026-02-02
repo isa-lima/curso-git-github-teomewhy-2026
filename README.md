@@ -8,6 +8,8 @@ Confira tudo o que temos no nosso Youtube. É grátis! Segue o link:
 
 [Curso Git 2025](https://youtube.com/playlist?list=PLvlkVRRKOYFQyKmdrassLNxkzSMM6tcSL&si=7jE-QTYzr3THrCDk).
 
+Além do canal do Téo Calvo no Youtube. Fique atento em tudo que vai rolar, através da agenda disponível no site e na Twith.
+
 ----------------------------------
 Pessoas participantes:
 
